@@ -1,5 +1,5 @@
 ![](https://64.media.tumblr.com/c95607d472f84a1bac785ffe96a493ac/71948d3f4339f10d-e1/s400x600/e875b8d9e54987dae92a9ecd2d8211a53b236fab.pnj)
-## 𐔌 ***INTRO*** .ᐟ ⚠︎
+## 𐔌 ***INTRO*** .ᐟ 
 - **hello ! we'd thought we should make this so people can get a better idea about our system before speaking with us.**
   ────────────────────────
 - 𓏴 ***! BODILY 16 + !*** 𓏴 
@@ -22,4 +22,5 @@
 ## 𐔌 ***FANDOMS*** .ᐟ
 - *creepypasta , regretevator , furrys/therians , slenderverse , marble hornets , helluva boss (kinda) , mandela catalog , genshin & honkai*
 - *+ more !*
+
 ![](https://64.media.tumblr.com/78a04a18f6a00448b3c092159bd08d1b/71948d3f4339f10d-8f/s400x600/654269b3405320298f52c2a6c6a0e80501de0602.pnj)
