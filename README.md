@@ -9,9 +9,8 @@
 - doubles = ask to int !
 - ![](https://64.media.tumblr.com/4dcff6f2ae3af1a20c6f69b61bbe5535/9ca631c38850358e-7c/s400x600/64f2d97babbd537452335a97d058b5e83aeafdab.gifv)
 - ➜ ***HOSTS :*** ৎ
-- *ben ┆ 16 & introject*
-- *tobias ┆ 17 & fictive*
 - *jack ┆ 17 & fictive* 𓏵
+- *tobias ┆ 17 & fictive*
 - ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 ## 𐔌 ***DNI*** .ᐟ
 - ◟*t.r.a.s.h supporters*
