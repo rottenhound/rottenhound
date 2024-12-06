@@ -1,4 +1,4 @@
-![](https://64.media.tumblr.com/cc432241a5afcee5e39e178a28bd096a/34733a9bae28bc0b-7e/s400x600/e62101006e04bc00042425a2a7d130012f04cd70.pnj)
+![](https://64.media.tumblr.com/98582d066860d0fd657575c5020090c3/6d6a639539246533-31/s400x600/ce98b892229b61f2f6c95b26a13b310be62daff8.pnj)
 ## 𐔌 ***INTRO*** .ᐟ 
 - **hello ! we'd thought we should make this so people can get a better idea about our system before speaking with us .**
   ────────────────────────
@@ -21,5 +21,3 @@
 ## 𐔌 ***FANDOMS*** .ᐟ
 - *creepypasta , regretevator , furrys/therians , slenderverse , marble hornets , helluva boss (kinda) , mandela catalog , genshin & honkai*
 - *+ more !*
-
-![](https://64.media.tumblr.com/7ea504163757c09f8616358413f95f61/c66445df1a34b26b-59/s250x400/da4fdb9b3c35170097c4bed3a2f5458ba9fe061b.pnj)
