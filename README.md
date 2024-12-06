@@ -16,7 +16,7 @@
 - ◟*t.r.a.s.h supporters*
 - *endo , willow , non-traumagenic "systems" .*
 - **problematic fandoms :** 𓉸
-- *dandys world , dsmp/qsmp , hazbin , mha*
+- *dandys world , dsmp/qsmp , hazbin , mha , pjsk*
 - *any other shit that could go here .* 彡
 ## 𐔌 ***FANDOMS*** .ᐟ
 - *creepypasta , regretevator , furrys/therians , slenderverse , marble hornets , helluva boss (kinda) , mandela catalog , genshin & honkai*
