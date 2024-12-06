@@ -21,3 +21,5 @@
 ## 𐔌 ***FANDOMS*** .ᐟ
 - *creepypasta , regretevator , furrys/therians , slenderverse , marble hornets , helluva boss (kinda) , mandela catalog , genshin & honkai*
 - *+ more !*
+
+![](`https://komarev.com/ghpvc/?username=your-github-username`)
