@@ -1,4 +1,4 @@
-![](https://64.media.tumblr.com/9ac40ffa7f3ce4b2c323fd8436733226/c66445df1a34b26b-68/s250x400/ec13821e255fabdc4535a22ff9bee69a90f8e048.pnj)
+![](https://64.media.tumblr.com/cc432241a5afcee5e39e178a28bd096a/34733a9bae28bc0b-7e/s400x600/e62101006e04bc00042425a2a7d130012f04cd70.pnj)
 ## 𐔌 ***INTRO*** .ᐟ 
 - **hello ! we'd thought we should make this so people can get a better idea about our system before speaking with us .**
   ────────────────────────
