@@ -7,7 +7,7 @@
 - collective autism & bpd (?)
 - **CAC : 40 +** | *(current alter count)*
 - doubles = ask to int !
-- ![](https://64.media.tumblr.com/78c85e904d7e7001cf05052f9c2e0f93/2b727c94881b07b1-1d/s400x600/6c2b3aba0e54bbae84e649bd8cb9e28bfe3490dd.gifv)
+- ![](https://64.media.tumblr.com/50ac582dcbeb99e71c7f069b22bf69a8/e2f9a80a93a420ee-08/s400x600/f2af8e1cf821f9b53fbe311257398af6d6f32e9f.pnj)
 - ➜ ***HOSTS :*** ৎ
 - *jack ┆ 17 & fictive* 𓏵
 - *tobias ┆ 17 & fictive*
