@@ -5,19 +5,13 @@
 - 𓏴 ***! BODILY 16 + !*** 𓏴 
 - *multiple hosted* 𖤐 fictive heavy ♡
 - collective autism & bpd (?)
-- **CAC : 40 +** | *(current alter count)*
+- **CAC : 60 +** | *(current alter count)*
 - doubles = ask to int !
 - ![](https://64.media.tumblr.com/acda11f510fb2bb5bd1f84dea217d62f/0204d4661e661699-d6/s400x600/a082d42e5a054a1f1275cb72b4fba3f9109e81a6.gifv)
 - ➜ ***HOSTS :*** ৎ
 - *jack ┆ 17 & fictive* 𓏵
 - *tobias ┆ 17 & fictive*
 - ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
-## 𐔌 ***DNI*** .ᐟ
-- ◟*t.r.a.s.h supporters*
-- *endo , willow , non-traumagenic "systems" .*
-- **problematic fandoms :** 𓉸
-- *dandys world , dsmp/qsmp , hazbin , mha , pjsk*
-- *any other shit that could go here .* 彡
 ## 𐔌 ***FANDOMS*** .ᐟ
 - *creepypasta , regretevator , furrys/therians , slenderverse , marble hornets , helluva boss (kinda) , mandela catalog , genshin & honkai*
 - *+ more !*
