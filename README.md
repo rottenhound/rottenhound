@@ -9,7 +9,7 @@
 - doubles = ask to int !
 - ![](https://64.media.tumblr.com/acda11f510fb2bb5bd1f84dea217d62f/0204d4661e661699-d6/s400x600/a082d42e5a054a1f1275cb72b4fba3f9109e81a6.gifv)
 - ➜ ***HOSTS :*** ৎ
-- *jack ┆ 17 & fictive* 𓏵
+- *jack ┆ ageless & fictive* 𓏵
 - *tobias ┆ 17 & fictive*
 - ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 ## 𐔌 ***FANDOMS*** .ᐟ
