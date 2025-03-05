@@ -1,19 +1,2 @@
-![](https://64.media.tumblr.com/98582d066860d0fd657575c5020090c3/6d6a639539246533-31/s400x600/ce98b892229b61f2f6c95b26a13b310be62daff8.pnj)
-## 𐔌 ***INTRO*** .ᐟ 
-- **hello ! we'd thought we should make this so people can get a better idea about our system before speaking with us .**
-  ────────────────────────
-- 𓏴 ***! BODILY 16 + !*** 𓏴 
-- *multiple hosted* 𖤐 fictive heavy ♡
-- collective autism & bpd (?)
-- **CAC : 60 +** | *(current alter count)*
-- doubles = ask to int !
-- ![](https://64.media.tumblr.com/acda11f510fb2bb5bd1f84dea217d62f/0204d4661e661699-d6/s400x600/a082d42e5a054a1f1275cb72b4fba3f9109e81a6.gifv)
-- ➜ ***HOSTS :*** ৎ
-- *jack ┆ ageless & fictive* 𓏵
-- *tobias ┆ 17 & fictive*
-- ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
-## 𐔌 ***FANDOMS*** .ᐟ
-- *creepypasta , regretevator , furrys/therians , slenderverse , marble hornets , helluva boss (kinda) , mandela catalog , genshin & honkai*
-- *+ more !*
-
-![](https://komarev.com/ghpvc/?username=thedrownedsys)
+![](https://cdn.discordapp.com/attachments/1261331226824933406/1346955430341116005/Untitled111_20250305161951.png?ex=67ca117f&is=67c8bfff&hm=bbd443ae116b3178119799fbe4e726525b9e8a8a1e6f0a4365d0ccff30369585&)
+![https://rentry.co/limblesscorpse](https://cdn.discordapp.com/attachments/1261331226824933406/1346958083196325948/Untitled112_20250305163025.png?ex=67ca13f8&is=67c8c278&hm=5def050ec944ba67731457a2ee02362a7752b2adccb4c57f4a16bb3df13aa8a6&)
