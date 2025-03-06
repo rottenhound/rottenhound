@@ -1,5 +1,3 @@
-![](https://64.media.tumblr.com/a2f436051592075134f4a20ffe022da4/cd212e15ecf9dc79-57/s400x600/a94b365a8b559ddcdde9d73c5b081c43fbc9842d.gifv)
-
-![](https://64.media.tumblr.com/a8731302e4e6fcfcb486cf7da51a2954/290ab8339797173b-23/s400x600/868b18bbf209468ed747c113687db43a09cc3772.pnj)
+![](https://64.media.tumblr.com/2a22d0b1c1f9908a334a583215f24215/af42609dc7762274-d1/s400x600/356653b1347886f0f657ce567dcc65e755bf2104.pnj)
 
              [**rentry**](https://rentry.co/limblesscorpse)
