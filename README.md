@@ -1,3 +1,2 @@
-![](https://64.media.tumblr.com/c3b1f3cc81512eaf77068e0b64850caa/050e9e866cb26b73-ae/s1280x1920/5afda719a637448e9cd986474a693a985106d2ae.pnj)
-
+![](https://64.media.tumblr.com/e0a2689626b9e9677593abe83311fe5e/ac93fa7b4e916d70-2d/s1280x1920/693dc6c70e85ffff902c9909dca81530d58abe0b.pnj)
                [**rentry**](https://rentry.co/limblesscorpse)
