@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="1000" height="115" src="https://64.media.tumblr.com/3a9e2df4f0db1ed50526ee3fc96109c5/9294095bd274d868-af/s2048x3072/649f88015645d780cf4d91f1d7e015f389dac7f7.pnj">
+  <img width="1050" height="115" src="https://64.media.tumblr.com/3a9e2df4f0db1ed50526ee3fc96109c5/9294095bd274d868-af/s2048x3072/649f88015645d780cf4d91f1d7e015f389dac7f7.pnj">
 </p>
 
 <p align="center">
@@ -9,5 +9,5 @@
                       [**rentry**](https://rentry.co/rotten-hound)　　　.　　　[**collective playlist**](https://open.spotify.com/playlist/1e7YmsiDSoCI60K4yAWKDo?si=95a79069808f4850)
 
 <p align="center">
-  <img width="1000" height="115" src="https://64.media.tumblr.com/3a9e2df4f0db1ed50526ee3fc96109c5/9294095bd274d868-af/s2048x3072/649f88015645d780cf4d91f1d7e015f389dac7f7.pnj">
+  <img width="1050" height="115" src="https://64.media.tumblr.com/3a9e2df4f0db1ed50526ee3fc96109c5/9294095bd274d868-af/s2048x3072/649f88015645d780cf4d91f1d7e015f389dac7f7.pnj">
 </p>
