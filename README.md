@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <img width="250" height="250" src="https://64.media.tumblr.com/f896edba7fdd2b4b70d783f5c35de3d5/12399935739b482a-a9/s100x200/376e672c39348f30e1614f527d5d70587bbc7866.gifv" />
+  <img width="250" height="250" src="https://64.media.tumblr.com/b855c7592ea71f5f12ba4aa41cbcd145/3594068b322ca624-25/s100x200/15afb6fd107cb33a50bfde10deaaedf4ad8d243b.gifv" />
 </p>
 
                           [**pronouns page**](https://pronouns.cc/@rotten-hound)
