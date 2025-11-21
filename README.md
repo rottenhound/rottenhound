@@ -1,3 +1,3 @@
-             ![](https://files.catbox.moe/tiec0n.png)
+             ![](https://files.catbox.moe/j4new1.png)
              
                             [**strawpage**](https://viciousmutt.straw.page/)
